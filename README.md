@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Arun karki
-- 👀 I’m interested in codeing and programming 
+- 👀 I’m interested in coding and programming 
 - 🌱 I’m currently learning from basics (html)
 - 💞️ I’m looking to persue my learning process
 - 📫 If you have any kind of suggestion for me please email me on kakslegwnds@gmail.com
